@@ -4,3 +4,6 @@
 
 my games are in Ukrainian because I'm from Ukraine😁
 but I can also do English versions
+
+please support ukrainian army:
+https://savelife.in.ua/en/
